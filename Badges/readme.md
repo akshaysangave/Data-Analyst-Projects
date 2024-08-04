@@ -1,2 +1,1 @@
-![Sql 5 star](https://github.com/user-attachments/assets/0dcb53f1-8835-4fbd-be00-82f7cc0bc173)
-
+![hrgh](https://github.com/user-attachments/assets/09e76e06-8138-4b4b-8d6b-41ea2b4781ae)
